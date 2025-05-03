@@ -16,7 +16,7 @@ link dowload service tool:https://lgrepaircenter.com/topsymptomtvmainpcbreplaceg
 
 
 
-now enjoy (some features i know:press home to open,wait 30 seconds)
+now enjoy (some features i know:press home to open,wait 30 seconds)(factory mode)
 
 
 
