@@ -9,7 +9,7 @@ If you want to update the service tool , please read this file:
 https://github.com/user-attachments/assets/8a6d12c3-5b96-4339-b196-e5a124f2b4ab
 link dowload service tool:https://lgrepaircenter.com/topsymptomtvmainpcbreplaceguide/
 
-
+checking model 50uq7550psf :》stuck setting 
 
 
 
